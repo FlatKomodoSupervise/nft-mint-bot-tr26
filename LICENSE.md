@@ -1,4 +1,4 @@
-# 
+# secure nft mint bot | real-time-monitoring + arbitrage-opportunities is the best nft mint bot, featuring real-time-monitoring and arbitrage-opportunities. Fast, smart, and
 
 
 
